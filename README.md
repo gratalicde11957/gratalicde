@@ -1,1 +1,1 @@
-Soccer has the power to transcend cultural and political divides, as seen in instances of soccer diplomacy, such as the "ping-pong diplomacy" between the US and China in the 1970s.
+The 2014 FIFA World Cup semi-final between Brazil and Germany, which ended in a shocking 7-1 victory for Germany, is one of the most memorable matches in World Cup history.
