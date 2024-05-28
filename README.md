@@ -1,1 +1,1 @@
-The introduction of Video Assistant Referee (VAR) technology has impacted the game by allowing officials to review key decisions, reducing controversial calls.
+Soccer is often used as a tool for social change and development, with organizations like streetfootballworld harnessing its potential to address issues like poverty and inequality.
