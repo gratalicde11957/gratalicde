@@ -1,1 +1,1 @@
-Soccer is often used as a tool for social change and development, with organizations like streetfootballworld harnessing its potential to address issues like poverty and inequality.
+The Old Firm derby between Scottish clubs Celtic and Rangers is steeped in religious and cultural history, dividing the city of Glasgow.
