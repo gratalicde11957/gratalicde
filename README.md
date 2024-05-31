@@ -1,1 +1,1 @@
-Diego Maradona's "Hand of God" goal and "Goal of the Century" against England in the 1986 World Cup quarter-final are iconic moments in soccer history.
+Zinedine Zidane's volleyed goal for Real Madrid against Bayer Leverkusen in the 2002 UEFA Champions League final is often cited as one of the greatest goals in Champions League history.
