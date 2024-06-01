@@ -1,1 +1,1 @@
-Zinedine Zidane's volleyed goal for Real Madrid against Bayer Leverkusen in the 2002 UEFA Champions League final is often cited as one of the greatest goals in Champions League history.
+The popularity and visibility of women's soccer have grown significantly in recent years, with increased media coverage and investment from governing bodies and sponsors.
