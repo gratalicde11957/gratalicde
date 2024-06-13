@@ -1,1 +1,1 @@
-The "Samba style" of Brazilian soccer is characterized by skillful dribbling, quick passing, and an emphasis on flair and creativity.
+The United States women's national soccer team is the most successful in Women's World Cup history, winning the tournament four times as of 2019.
