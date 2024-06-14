@@ -1,1 +1,1 @@
-The United States women's national soccer team is the most successful in Women's World Cup history, winning the tournament four times as of 2019.
+Soccer has inspired countless works of art, literature, and music, reflecting its status as a global cultural phenomenon and source of inspiration.
