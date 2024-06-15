@@ -1,1 +1,1 @@
-Soccer has inspired countless works of art, literature, and music, reflecting its status as a global cultural phenomenon and source of inspiration.
+Johan Cruyff, known for his role in popularizing "Total Football," was a three-time Ballon d'Or winner and a key figure in Dutch soccer history.
