@@ -1,1 +1,1 @@
-The "Icelandic thunderclap," a rhythmic clapping chant performed by Iceland fans, became a symbol of their team's success and underdog spirit in international competitions.
+The Santiago Bernabéu Stadium, home of Real Madrid, is one of the most iconic soccer venues in the world and has hosted numerous UEFA Champions League finals.
