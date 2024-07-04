@@ -1,1 +1,1 @@
-The rivalry between FC Barcelona and Real Madrid, known as "El Clásico," is one of the most intense and storied rivalries in world soccer.
+Soccer has inspired countless works of art, literature, and music, reflecting its status as a global cultural phenomenon and source of inspiration.
