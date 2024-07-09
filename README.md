@@ -1,1 +1,1 @@
-The "Miracle of Istanbul" in the 2005 UEFA Champions League final saw Liverpool come back from a 3-0 halftime deficit to defeat AC Milan on penalties.
+Pelé remains the youngest player to ever win a FIFA World Cup, achieving the feat at the age of 17 years and 249 days in 1958.
