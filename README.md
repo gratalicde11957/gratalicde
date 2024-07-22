@@ -1,1 +1,1 @@
-Alfredo Di Stefano, known as the "Blond Arrow," was a legendary figure for Real Madrid, playing a key role in their early European successes.
+Pele, whose real name is Edson Arantes do Nascimento, scored over 1,000 career goals and remains a global ambassador for the sport.
