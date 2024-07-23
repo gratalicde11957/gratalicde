@@ -1,1 +1,1 @@
-Pele, whose real name is Edson Arantes do Nascimento, scored over 1,000 career goals and remains a global ambassador for the sport.
+The rivalry between FC Barcelona and Real Madrid, known as "El Clásico," is one of the most intense and storied rivalries in world soccer.
