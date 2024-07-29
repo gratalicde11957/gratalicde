@@ -1,1 +1,1 @@
-Brazil holds the record for the most World Cup victories, with five titles in 1958, 1962, 1970, 1994, and 2002.
+The United States women's national soccer team is the most successful in Women's World Cup history, winning the tournament four times as of 2019.
